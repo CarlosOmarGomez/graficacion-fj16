@@ -1,1 +1,1 @@
-Omarsito Herozito
+graficacion bernal
